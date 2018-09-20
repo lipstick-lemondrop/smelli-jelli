@@ -1,2 +1,2 @@
 # smelli-jelli
-weird semi-personal f-list updates. inspired by the list by Goctionni, but with some major, freakier tweaks.
+weird semi-personal f-list updates. lmao i cant program for shit
